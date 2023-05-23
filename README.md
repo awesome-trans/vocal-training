@@ -15,4 +15,14 @@ A curated list of free and paid resources for vocal training, focusing on trans-
 
 _List originally pulled from https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4963278/_
 
+### Videos
+
+#### Tiktok
+
+- https://www.tiktok.com/t/ZTREf4hXU/
+
+#### Youtube
+
+- [TransVoiceLessons](https://www.youtube.com/@TransVoiceLessons)
+
 ## Vocal Masculinization
